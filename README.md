@@ -8,7 +8,7 @@ I'm a passionate **Full-Stack Web Developer** working with a fast-paced IT compa
 - 🌱 Always learning and exploring better ways to build efficient solutions
 - 💬 Open to sharing knowledge and contributing to developer communities
 
-📫 Reach me at: **smit.jaiswal2001@gmail.com**
+📫 Reach me at: **chavdamanav17@gmail.com**
 
 Let's connect, build, and grow together! 🚀
 
